@@ -1,1 +1,1 @@
-poopy diapers
+stinky, poopy diapers
